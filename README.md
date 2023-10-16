@@ -1,4 +1,3 @@
 # Comprehensive-Digital-Marketing-on-Hero-MotoCorp-Ltd
 # PPTX Document is uploaded
-# Vide Demo in .mp4 format is uploaded 
-# https://github.com/jerin14063/Comprehensive-Digital-Marketing-on-Hero-MotoCorp-Ltd.git
+#  (https://drive.google.com/drive/folders/13wyMHOLT5QHicV-uJjdgYalBtak3wRum)https://drive.google.com/drive/folders/13wyMHOLT5QHicV-uJjdgYalBtak3wRum
